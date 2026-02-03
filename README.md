@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-😍 I love learning about computers and tech, how they work, new innovation, etc. I love new hardware and programs that automate annoying tasks. 
+😍 I love learning about computers and tech, how they work, new innovation, etc. I also love new hardware and programs that automate annoying tasks. 
